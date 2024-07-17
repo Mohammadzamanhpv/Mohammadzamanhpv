@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Mohammadzamanhpv
 - 👀 I’m interested in </ALT3>
-- 🌱 I’m currently learning "C/CPP"
+- 🌱 I’m currently learning "nothing to do"
 - 💞️ At this time, I am not interested in collaborating 
 - 📫 How to reach me ???
 
